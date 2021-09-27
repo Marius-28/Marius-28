@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Marius
-- 📫 How can you contact me? Discord or E-Mail ( Marius#0660 | marius@festzelt-racing.de )
+- 📫 How can you contact me? Discord or E-Mail ( Marius#0660 | info@festzelt-gaming.de )
 - or  https://discord.gg/6EUYngHafg
 
 <!---
