@@ -1,8 +1,7 @@
-- 👋 Hi, I’m Marius
-- 📫 How can you contact me? Discord or E-Mail ( Marius#0660 | info@festzelt-gaming.de )
-- or  https://discord.gg/6EUYngHafg
+👋 Hi, I’m Marius
+O.o before we talk o.O -> https://youtu.be/c6mVl6fAxLw?t=3  <- O.o
 
-<!---
-Marius-28/Marius-28 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+📫 you can contact me by:
+Discord: Marius#0660
+or
+Email: coming soon!
