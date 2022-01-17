@@ -6,4 +6,4 @@ O.o before we talk o.O -> https://youtu.be/c6mVl6fAxLw?t=3  <- O.o
 
 Discord: Marius#0660
 or
-Email: coming soon!
+Email: info@marius-twenty-eight.de
